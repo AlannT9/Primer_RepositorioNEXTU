@@ -1,2 +1,11 @@
 # Primer_RepositorioNEXTU
 Ejercicio_de_creación_del_primer_repositorio_remoto
+dsfsdf{dsfndskfa´sdafdsalkafnodsafdsanf}{dsaf
+sdfhudsfsbfudsaf'dsaf{dsof
+jfiudshfdsfkjdsfpáfasdf´dsaf
+dasfuidsfsdafsudahfsadufsad-fsdo9af
+dsbfudsihfdsbfdshufdsf
+dsbfdsgfydsfñsda8yfdsbjfdsgfygdsaf
+dsfbdsygf6dsalf
+ajbfasfsadjfdsahfadsfdsanewarhóasifdsafbas>>>v
+dffisdoahfiodsaf
